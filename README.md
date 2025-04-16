@@ -3,7 +3,7 @@
 
 # Programming tutoring, add me if you need it
 
-## WeChat: richasara 
+## 微信: richasara 
 
 ## QQ： 16663755
 
